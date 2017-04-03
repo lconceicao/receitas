@@ -1,6 +1,6 @@
 # Bolo de Chocolate Húmido
 
-![alt text](http://www.helenagasparetto.com.br/wp-content/uploads/DSC01746.jpg "Bolo chocolate")
+![alt text](http://www.helenagasparetto.com.br/wp-content/uploads/DSC01746.jpg "Bolo chocolate" =250x)
 
 ## Ingredientes
 * 600ml farinha tipo 65
