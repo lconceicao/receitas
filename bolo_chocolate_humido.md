@@ -15,6 +15,19 @@
 * 50ml óleo vegetal
 * 400ml água a ferver
 
+## 3/4 dose
+* 450 ml farinha tipo 65 (250g)
+* 150 ml cacau pó (75g)
+* 1/4 colher chá sal
+* 1 1/2 colheres chá fermento pó
+* 1 colher chá bicabornato de sódio
+* 3 ovos
+* 150 ml acúcar (140g)
+* 110g chocolate culinária
+* 90 ml mantenga (60g)
+* 25 ml óleo
+* 300 ml água a ferver
+
 ## Instruções de Preparação (bimby)
 1. Pré-aqueça o forno a 170ºC.
 2. Unte com manteiga uma forma redonda de 26cm. Forre com papel manteiga. Unte novamente e enfarinhe. Reserve.
